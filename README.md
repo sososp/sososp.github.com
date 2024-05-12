@@ -1,5 +1,9 @@
 :sparkles::sparkles:SoSo视频-最新地址发布:sparkles::sparkles:
 ==
+:heart: :point_right: 【最新地址】 ：[https://10s.sososp30.xyz/soso](https://10s.sososp30.xyz/soso)
+------
+:heart: :point_right: 【最新地址】 ：[https://10s.sososp20.xyz/soso](https://10s.sososp20.xyz/soso)
+------
 :heart: :point_right: 【最新地址】 ：[https://10s.sososp10.xyz/soso](https://10s.sososp10.xyz/soso)
 ------
 :heart: :point_right: 【永久地址】 ：[https://光粺i.soso301.xyz/p刢亁罡](https://光粺i.soso301.xyz/p刢亁罡)
